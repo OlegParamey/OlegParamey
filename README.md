@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 i'm currently working on an online store as a personal project
+🔭 Looking for job, currently working on an online store as a personal project
 
 
 ## 🌐 Socials:
